@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Any project, learning never ends. 
 - 📫 How to reach me ... my email, or here.
 
+Jani-Mckenzie/Jani-Mckenzie is amazing. 
 <!---
 Jani-Mckenzie/Jani-Mckenzie is amazing. 
 --->
